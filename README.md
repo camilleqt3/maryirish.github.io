@@ -1,2 +1,0 @@
-# maryirish.github.io
-Hello ♥
